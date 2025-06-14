@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AndrianMiora
+- 👋 Hi, I’m @AndrianMiora, but you can call me Miora
 
 
 <!---
